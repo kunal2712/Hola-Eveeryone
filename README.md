@@ -1,4 +1,4 @@
-# Hola-Eveeryone
+# Hola-Everyone
 its ur boiii kunal
 whats up hope yall doin good 
 stay dedicated 
